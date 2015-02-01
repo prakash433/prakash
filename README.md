@@ -1,2 +1,9 @@
 # prakash
 my first respository
+                           *
+                          ***
+                         *****
+                        *******
+                           *
+                           *
+                          * *
